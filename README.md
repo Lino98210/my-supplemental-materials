@@ -1,4 +1,3 @@
-# my-supplemental-materials
 # Wild, Low-quanlity Bullets, Ebb Tide:
 These three songs were collectively created by the members of the Fancy Wall Band. 
 I worked as a drummer in the band, mainly responsible for the arrangement of drum beats and the arrangement and cohesion of the entire song. 
